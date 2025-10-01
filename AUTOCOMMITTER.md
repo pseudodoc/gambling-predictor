@@ -1,1 +1,1 @@
-Your brain uses the same amount of power as a 10-watt lightbulb.
+Humans are bioluminescent — we glow, but our eyes can’t detect it.
