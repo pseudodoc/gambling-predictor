@@ -1,1 +1,1 @@
-Humans are bioluminescent — we glow, but our eyes can’t detect it.
+The total weight of all ants on Earth is roughly equal to that of all humans.
