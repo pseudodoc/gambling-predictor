@@ -1,1 +1,1 @@
-The total weight of all ants on Earth is roughly equal to that of all humans.
+Bees sometimes sting other bees.
