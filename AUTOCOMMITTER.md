@@ -1,1 +1,1 @@
-A bolt of lightning is hotter than the surface of the sun.
+Humans glow in the dark — very faintly.
